@@ -2,5 +2,5 @@
 
 Hi there!
 
-Md here, I'm here to take you the place where you want to be.
+Md here, I'm here to take you to the places where you want to be.
 
